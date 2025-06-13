@@ -1,0 +1,1 @@
+IPC - Inter planetary communication plays a critical role in the space missions and communications, uses relativity, spae time, entangled pairs for Moon and Mars and other intermediate space communications  
